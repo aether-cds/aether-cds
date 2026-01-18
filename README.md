@@ -21,7 +21,7 @@
 
 - 💬 Ask me about UI/UX, frontend, modern web design, and design research
 
-- ⚡ Fun fact: I unapologetically love pineapple on pizza 🍍🍕 
+- ⚡ Fun fact: I like older girls. 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/syamiknowznothing) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/samyam-sharma-74586a2b5/)
  
